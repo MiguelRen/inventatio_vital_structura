@@ -1,0 +1,1 @@
+# inventatio_vital_structura
